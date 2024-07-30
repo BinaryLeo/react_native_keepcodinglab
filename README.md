@@ -22,7 +22,8 @@
 ### Figma
 
 
-![Group 602](https://github.com/user-attachments/assets/2c938479-da18-450c-b444-3521ff8d0305)
 
 
+
+![348881838-2c938479-da18-450c-b444-3521ff8d0305](https://github.com/user-attachments/assets/7c6c939c-88a8-4de4-a56c-c6ebde7bb8d2)
 
